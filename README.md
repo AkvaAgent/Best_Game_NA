@@ -1,2 +1,2 @@
-# Best_Game_NA
+# Glorious_Games
 Is game yo
